@@ -1,1 +1,1 @@
-# Script-For-Bypass-CloudFlare-Turnstile-Only-for-OpenBullet2-
+# Script For Bypass CloudFlare Turnstile Only for OpenBullet2
