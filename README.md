@@ -10,4 +10,3 @@
 
 ✈️ For buy contact me:
 Telegram: @recaptchav3bypass
-Discord: ID USER => 1205164519387697196
